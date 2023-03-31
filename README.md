@@ -1,1 +1,1 @@
-# liteWearable App Store, Communitee and Self Sing Platform
+# liteWearable App Store, Communitee and Self Sign Platform
